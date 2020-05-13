@@ -1,3 +1,7 @@
-# Welcome to my blog
+SSK aktiv - Das Onlineportal zur Information
 
-I'm glad you are here. I plan to talk about ...
+
+Ein rechtlicher Hinweis:
+
+SSK aktiv darf nur für firmeninterne Zwecke verwendet
+werden. Eine Weitergabe des Links zum Portal ist untersagt.
