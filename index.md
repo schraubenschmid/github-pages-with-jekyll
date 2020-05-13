@@ -1,3 +1,4 @@
-# Welcome to my blog
+Ein rechtlicher Hinweis:
 
-I'm glad you are here. I plan to talk about ...
+SSK aktiv darf nur für firmeninterne Zwecke verwendet
+werden. Eine Weitergabe des Links zum Portal ist untersagt.
